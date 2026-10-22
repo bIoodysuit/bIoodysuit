@@ -1,7 +1,9 @@
 <p align="center">
 
 <img width="1111" alt="image" src="https://github.com/user-attachments/assets/10a86907-ccfa-464e-b6de-19ad59816d26" />
-𓂃۶ৎ A swift DNI! SpyScout/Dark/Proshippers/Pedos, youre all the same to me and I'd like to make that clear ! More clear DNI on my main github.
+𓂃۶ৎ A swift DNI! SpyScout/Dark/Proshippers/Pedos, youre all the same to me and I'd like to make that clear ! More clear DNI on my main github if you're that interested.
+
+<p align="center">
 I do not mind most Spy ships ! Feel free to int always, c*h always, whisper/talk to me anytime. But be known I primarily only ship Bloodysuit/SniperSpy!  ˗ˋˏ ♡ ˎˊ˗
 
 <p align="center">
